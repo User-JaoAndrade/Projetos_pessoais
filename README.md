@@ -1,2 +1,2 @@
 # Projetos_pessoais
- Alguns projetos que fiz pra praticar
+ Alguns projetos que fiz pra me divertir
